@@ -36,6 +36,6 @@ I wish you could see yourself through my eyes
 
 Be kind to yourself🥰        
 
-[Curse to vent of Anger😅](https://docs.google.com/forms/d/e/1FAIpQLSdUtr0EhWgb8bDBcub45DjOFwxK1Ie4TjI6R-HBTRQz4Ywuwg/viewform?vc=0&c=0&w=1&flr=0)
+<!--[Curse to vent of Anger😅](https://docs.google.com/forms/d/e/1FAIpQLSdUtr0EhWgb8bDBcub45DjOFwxK1Ie4TjI6R-HBTRQz4Ywuwg/viewform?vc=0&c=0&w=1&flr=0)-->
  
                                                                                                                                             
